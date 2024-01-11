@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @hanazwa or angelia
+- 👋 Hi, I’m @hanazwa
 - 👀 I’m interested in foods!
 - 🌱 I’m currently learning about codes!
-- 🙂 I'm a student! Class 10 TKJ 1
-- 📫 How to reach me? @hanaz.wa on ig.. winks
+- 🙂 I'm a student! Class 12 TKJ 1
+- 📫 How to reach me? hanaig on discord.. winks
 - 🤑 Please consider donating some money to me.. 
 
 <!---
